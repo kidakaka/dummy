@@ -1,3 +1,1 @@
-Trying to see if this works for link building! Muahahahaha!
-
-[Home Downpayment](https://homecapital.in)
+I have been looking at housing properties in and around Mumbai since that’s the city of my choice. I couldn’t dream of living anywhere else. The property rates are on a higher scale here. Hence, I decided to move to the Thane suburbs since it is one of the best and upcoming areas in Mumbai with lots of property options. I was exploring the Rumah Bali property by Puraniks Builders when I came to know about their Fintech partners, the [HomeCapital](https://homecapital.in) guys. This was a real blessing in disguise for a novice home buyer like me.
